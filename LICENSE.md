@@ -1,4 +1,4 @@
-#  
+#  Experience re:rangers x like never before with re:rangers x custom Scripts, the #1 Script. Includes auto-sell and unlimited stamina for unbeatable
 
 
 
